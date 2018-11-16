@@ -15,7 +15,7 @@
 
 > 从啥时候开始有的。西方是啥样，中国是啥样。
 
-它于1843年起源于美国，被雅各布 · 利特尔(Jacob Little)和丹尼尔 · 德鲁(Daniel Drew)等[早期投机者用来垄断市场](Jerry W. Markham (2002). *A Financial History of the United States: From Christopher Columbus to the Robber Barons*. [M. E. Sharpe](https://en.wikipedia.org/wiki/M._E._Sharpe). p. 161. [ISBN](https://en.wikipedia.org/wiki/International_Standard_Book_Number) [0-7656-0730-1](https://en.wikipedia.org/wiki/Special:BookSources/0-7656-0730-1).)。 
+它于1843年起源于美国，被雅各布 · 利特尔(Jacob Little)和丹尼尔 · 德鲁(Daniel Drew)等[早期投机者用来垄断市场](https://en.wikipedia.org/wiki/Convertible_bond)。 
 
 ## 3.为什么要研究
 
